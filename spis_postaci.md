@@ -12,3 +12,8 @@ Porani oderzył patelnią Magdę gesler i ona wygląda teraz jak by dostała pat
 Posi jest to napuj który ogłupia tylko ogłupionych przez ten napój.
 ---
 ### ytong
+Ytong jest to coś z czymś bez takiego czegoś + nic.
+
+
+
+Poleca Magda Gesler która własnie je obiad.
